@@ -2,6 +2,6 @@
 - 📖 Student at EdenSchool
 - 🧑‍🎨 Graphic Designer in my spare time
 - 🎌 I speak French and English
-- 📜 I BUILD THIS SHIT ME BRICK BY BRIK
+- 📜 I BUILD THIS SHIT ME BRICK BY BRICK
 
 - ➡️ Other Informations from me : https://konect.gg/lustyfn
