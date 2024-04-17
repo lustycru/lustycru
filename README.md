@@ -1,4 +1,4 @@
-- 👨‍💻 Small developer (HTML, CSS, ~ JS)
+- 👨‍💻 Small developer (HTML, CSS, JS)
 - 📖 Student at EdenSchool
 - 🧑‍🎨 Graphic Designer in my spare time
 - 🎌 I speak French and English
